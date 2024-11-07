@@ -1,1 +1,1 @@
-Each lab projects need open independent as a project
+Just for lessons in University
